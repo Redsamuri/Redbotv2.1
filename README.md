@@ -1,0 +1,2 @@
+# Redbotv2.1
+RED SAMURI SELFBOT
